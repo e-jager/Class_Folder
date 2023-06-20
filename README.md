@@ -1,4 +1,5 @@
-# Git GIF-STRAVAGANZA for NATL-DS-Live-062623
+# Git GIF-STRAVAGANZA 
+## For NATL-DS-Live-062623
 
 Today's challenge is to contribute to a Git repository, using branches and pull requests! We'll be using a *Git branching workflow* so we can all contribute to this same README file.
 
