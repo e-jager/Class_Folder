@@ -15,6 +15,7 @@ Today's challenge is to contribute to a Git repository, using branches and pull 
 8. Start a pull request for me to review
 
 I will either accept your pull request, or send you feedback on what you need to do to improve!
+
 9. If needed make the necessary corrections and add, commit, push to your branch again
 
 ## Find Your Name Below!
