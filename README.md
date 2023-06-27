@@ -31,6 +31,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Catherine
 
 ### Sam
+![being a dawg gif from giphy](https://media.giphy.com/media/SggILpMXO7Xt6/giphy.gif)
 
 ### Claire
 
