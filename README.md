@@ -23,7 +23,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Daniel
 ![keyboard cat gif from giphy](https://media.giphy.com/media/Hcw7rjsIsHcmk/giphy-downsized.gif)
 ### Bobby D
-
+![keyboard summertime gif from giphy](https://media.giphy.com/media/n6B13gStKUdwdJ1guJ/giphy-downsized.gif)
 ### Ben
 
 ### Paul
