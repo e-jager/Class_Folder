@@ -21,7 +21,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ## Find Your Name Below!
 
 ### Daniel
-
+![keyboard cat gif from giphy](https://media.giphy.com/media/Hcw7rjsIsHcmk/giphy-downsized.gif)
 ### Bobby D
 
 ### Ben
