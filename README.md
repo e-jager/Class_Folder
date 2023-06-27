@@ -35,7 +35,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Claire
 
 ### Em
-
+![gif of Rupaul putting on reading glasses from giphy](https://media.giphy.com/media/y7Yhe5hAoSVRS/giphy.gif)
 ### Ramsi
 
 ### George
