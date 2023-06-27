@@ -37,7 +37,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Em
 
 ### Ramsi
-
+![cardi b gif](https://media.giphy.com/media/3o751Yxe9UjX26BZbG/giphy.gif)e
 ### George
 
 ### Lydia
