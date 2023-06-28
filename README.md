@@ -41,7 +41,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### George
 
 ### Lydia
-![I don’t know what I’m doing but I know I’m doing it really well](https://media.giphy.com/media/sgZdwNkOH43wZOEUJ2/giphy-downsized.gif
+![I don’t know what I’m doing but I know I’m doing it really well](https://media.giphy.com/media/sgZdwNkOH43wZOEUJ2/giphy-downsized.gif)
 ### Nick
 
 ### Bobby G
