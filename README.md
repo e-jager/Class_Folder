@@ -25,7 +25,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Bobby D
 ![keyboard summertime gif from giphy](https://media.giphy.com/media/n6B13gStKUdwdJ1guJ/giphy-downsized.gif)
 ### Ben
-
+![cowboy spongebob gif](https://media.giphy.com/media/3oriNUhx4FLc707jq0/giphy.gif)
 ### Paul
 
 ### Catherine
