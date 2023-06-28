@@ -29,7 +29,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Paul
 
 ### Catherine
-
+![determined runner gif from giphy](https://media.giphy.com/media/OWSclmNdL3oeERZzT9/giphy.gif)
 ### Sam
 ![being a dawg gif from giphy](https://media.giphy.com/media/SggILpMXO7Xt6/giphy.gif)
 
