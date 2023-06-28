@@ -36,7 +36,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Totoro and Friends](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMjAwNjQxb3NndHFtZHRjNWczaXYwanl6empqaTAwN2Z5dTFjcW11YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/pYNhxuY2Xx528/giphy.gif)
 
 ### Em
-
+![gif of Rupaul putting on reading glasses from giphy](https://media.giphy.com/media/y7Yhe5hAoSVRS/giphy.gif)
 ### Ramsi
 ![cardi b gif](https://media.giphy.com/media/3o751Yxe9UjX26BZbG/giphy.gif)e
 ### George
