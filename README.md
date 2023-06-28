@@ -44,7 +44,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Overwhelmed bachelor gif](https://media.giphy.com/media/IplvQCq2ZdwPUGcaVN/giphy.gif)
 
 ### Lydia
-
+![I don’t know what I’m doing but I know I’m doing it really well](https://media.giphy.com/media/sgZdwNkOH43wZOEUJ2/giphy-downsized.gif)
 ### Nick
 ![michael scott from the office](https://media.giphy.com/media/WsNbxuFkLi3IuGI9NU/giphy-downsized.gif)
 ### Bobby G
