@@ -39,13 +39,13 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Em
 ![gif of Rupaul putting on reading glasses from giphy](https://media.giphy.com/media/y7Yhe5hAoSVRS/giphy.gif)
 ### Ramsi
-![cardi b gif](https://media.giphy.com/media/3o751Yxe9UjX26BZbG/giphy.gif)e
+![cardi b gif](https://media.giphy.com/media/3o751Yxe9UjX26BZbG/giphy.gif)
 ### George
 
 ### Lydia
 
 ### Nick
-
+![michael scott from the office](https://media.giphy.com/media/WsNbxuFkLi3IuGI9NU/giphy-downsized.gif)
 ### Bobby G
 
 ### JF
