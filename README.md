@@ -48,5 +48,5 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Bobby G
 
 ### JF
-
+![dog surfing gif](https://media.giphy.com/media/9D8SldWd6lmVbHwRB1/giphy-downsized.gif)
 ### Mike
