@@ -27,7 +27,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ### Ben
 ![cowboy spongebob gif](https://media.giphy.com/media/3oriNUhx4FLc707jq0/giphy.gif)
 ### Paul
-
+![thinking](https://media.giphy.com/media/l3nWhI38IWDofyDrW/giphy.gif)
 ### Catherine
 ![determined runner gif from giphy](https://media.giphy.com/media/OWSclmNdL3oeERZzT9/giphy.gif)
 ### Sam
